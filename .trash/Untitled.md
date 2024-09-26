@@ -1,0 +1,18 @@
+- [ ] [[Take out trash to curb]] ➕ 2024-09-20
+- [ ] [[Take out recycle to curb]] ➕ 2024-09-20
+- [ ] [[Wash bedding]] ➕ 2024-09-20
+- [ ] [[Water plants]] ➕ 2024-09-20
+- [ ] [[Puppy Bath]] ➕ 2024-09-20
+- [ ] [[Clean washer and dryer]] ➕ 2024-09-20
+- [ ] [[Vacuum all floors]] ➕ 2024-09-20
+- [ ] [[Steam mop all floors]] ➕ 2024-09-20
+- [ ] [[Wipe off kitchen counters]] ➕ 2024-09-20
+- [ ] [[Clean bathrooms]] ➕ 2024-09-20
+- [ ] [[Pick up dog poop +]] ➕ 2024-09-20
+- [ ] [[Wash windows]] ➕ 2024-09-20
+- [ ] [[Clean kitchen appliances]] ➕ 2024-09-20
+- [ ] [[Remove expired food from fridge]] ➕ 2024-09-20
+- [ ] [[Wash puppy blankets]] ➕ 2024-09-20
+- [ ] [[Wipe off appliances]] ➕ 2024-09-20
+- [ ] [[Dusting all surfaces]] ➕ 2024-09-20
+- [ ] [[Mop all floors]] ➕ 2024-09-20
